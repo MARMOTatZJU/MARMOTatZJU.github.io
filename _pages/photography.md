@@ -200,6 +200,18 @@ _________________
 
 
 
+Seventeen-Arch Bridge (十七孔桥), Summer Palace (颐和园), Beijing, China
+==========================================================================================
+Taken on a date that is not far away from the winter solstice and therefore fortunate enough to enjoy an approached version of golden light crossing the arches (金光穿洞).
+
+[![IMG_2342](photography/thumbnails/IMG_2342_tn.jpg)](../_pages/photography/IMG_2342.jpg)
+
+$~$
+
+_________________
+
+
+
 LICENSE
 ==========================================================================================
 
