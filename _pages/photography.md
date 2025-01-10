@@ -192,7 +192,7 @@ Anabranch of the Yellow River, Shanxi, China
 ==========================================================================================
 Two vehicles is crossing on a bridge over an anabranch of the Yellow River. Taken during a motorcycle road trip along the Yellow River and crossing the Qin Mountains.
 
-[![IMG_7884](photography/thumbnails/IMG_2032_tn.jpg)](../_pages/photography/IMG_2032.jpg)
+[![IMG_2032](photography/thumbnails/IMG_2032_tn.jpg)](../_pages/photography/IMG_2032.jpg)
 
 $~$
 
